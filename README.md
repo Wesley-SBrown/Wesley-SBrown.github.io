@@ -1,1 +1,1 @@
-Access page at: [Portfolio](Wesley-SBrown.github.ip)
+Access page at: [Portfolio](Wesley-SBrown.github.io)
